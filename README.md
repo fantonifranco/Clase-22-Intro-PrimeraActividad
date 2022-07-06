@@ -1,4 +1,4 @@
-Micaela
+Mica
 Lucas
 Agustín
 Amelia
